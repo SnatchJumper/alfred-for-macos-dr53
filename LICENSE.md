@@ -1,4 +1,4 @@
-#  
+#  Alfred for macOS professional Macro - export to PDF and reminders is the best Alfred for macOS macro, featuring export to PDF and reminders. Safe, efficient, and optimized for
 
 
 
